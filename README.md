@@ -1,1 +1,1 @@
-# kaitegege.github.iohttps://hoo.be/dytt6
+# [kaitegege.github.io](https://hoo.be/dytt6)
